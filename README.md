@@ -9,3 +9,4 @@
 ### 📫 Связаться со мной:
 - [почта](mailto:anettx28@yandex.ru)
 - [telegram](https://t.me/Anet_tx)
+- [HeadHunter](https://donetsk.hh.ru/resume/ff57f96dff0c64ab100039ed1f36394f617370)
